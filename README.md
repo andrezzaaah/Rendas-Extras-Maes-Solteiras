@@ -18,7 +18,7 @@ Tudo será explicado no PDF: como trabalhar conosco, como indicar para outras pe
 ## 📬 Contato para envio do comprovante
 
 - ✉️ Email: [geovanaandrezza9@gmail.com](mailto:geovanaandrezza9@gmail.com)
-- 📱 WhatsApp 1: [32 98650-765](https://wa.me/553298650765)
+- 📱 WhatsApp 1: [32 998650-765](https://wa.me/5532998650765)
 - 📱 WhatsApp 2: [15 98804-1632](https://wa.me/5515988041632)
 
 ## 💕 Créditos
